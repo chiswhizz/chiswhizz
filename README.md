@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rose One of the HR at HPL Gamedesign Corporation.
+- 👀 I’m looking for Unreal Senior Game Developer
+- 🌱 I’m currently Hiring in multiple positions. 
+- 💞️ I’m looking to collaborate on ...
+- 📫 You may contact me on my email address rosedj.hplgamedesign@gmail.com
